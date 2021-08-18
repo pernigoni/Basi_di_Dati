@@ -1,1 +1,1 @@
-Progettino di giugno 2021.
+Progettino di giugno 2021
